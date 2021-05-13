@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Red kinda sus"
 ---
 
-I'm glad you are here. I plan to talk about ...
+I mean we all kinda knew it
