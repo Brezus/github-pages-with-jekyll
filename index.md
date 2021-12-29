@@ -2,4 +2,4 @@
 title: "Red kinda sus"
 ---
 
-I mean we all kinda knew it
+In soviet russia githubs pulls you
